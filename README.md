@@ -1,2 +1,1 @@
-# libcarp
-for training MTSU Library Carpentry 
+My Recipes
