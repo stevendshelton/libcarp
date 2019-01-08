@@ -11,3 +11,6 @@
 ## Directions
 1. Combine all ingredients in a blender and puree on high speed for 30 seconds.
 1. Transfer mixture to an airtight container or glass bottle with a tight-fitting lid and store in the refrigerator for up to 2 months. Shake well before using.
+
+## Serving Suggestions
+* Best enojoyed on cold, dreary weekend mornings with good coffee and a crackling fire.
