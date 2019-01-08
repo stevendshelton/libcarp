@@ -1,4 +1,4 @@
-# Homemade Baileys
+# Alt-Baileys
 
 ## Ingredients
 * ⅔ cups Jameson Irish whiskey.
